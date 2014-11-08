@@ -1,0 +1,3 @@
+- Go to the forest in Central Park
+- Go to the castle in Central Park
+- Go to the cloisters
